@@ -1,4 +1,4 @@
 - Hi, I’m @TheAtomikSingularity
 - I’m interested in a lot of things
 - I’m currently learning Python, C# and Javascript
-- Discord:- AtomikSingularity#0163
+- Discord:- AtomikSingularity#3407
